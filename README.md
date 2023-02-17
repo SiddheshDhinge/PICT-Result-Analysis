@@ -1,4 +1,4 @@
-# PICT Second Year Result Analysis of Academic Year 2021 - 2022**
+# PICT Second Year Result Analysis of Academic Year 2021 - 2022
 <br>
 Credits
 
